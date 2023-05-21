@@ -10,4 +10,4 @@ Ao encontrar um cupom de desconto interessante, os usuários podem clicar no có
 Asas do Desconto se destaca por fornecer uma experiência de usuário fácil e amigável, tornando o processo de economizar dinheiro simples e acessível para todos. Além disso, o site pode oferecer recursos extras, como dicas de compras, guias de presentes sazonais e notícias sobre promoções exclusivas, proporcionando aos usuários uma experiência completa ao buscar por descontos.
 
 Em resumo, Asas do Desconto é um site de cupons de desconto confiável e abrangente, dedicado a ajudar os usuários a economizar dinheiro em suas compras online, proporcionando uma ampla variedade de ofertas e uma experiência de usuário intuitiva.
-http://asasdodesconto.com/
+https://asasdodesconto.com/
